@@ -5,7 +5,7 @@ I am currently pursuing my **B.Tech in Computer Science and Engineering (Artific
 ---
 
 ### 📫 Connect with me:
-- 📧 Email: [gautamdwivedi20@gmail.com](mailto:gautamdwivedi20@gmail.com)
+- 📧 Email: [gautamdwivedi20@gmail.com](mailto:gautamdwivedi2001@gmail.com)
 - 🌐 LinkedIn: [Gautam Dwivedi](https://www.linkedin.com)
 - 🌍 Location: India
 
